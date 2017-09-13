@@ -1,1 +1,0 @@
-# jedbickford.github.io
